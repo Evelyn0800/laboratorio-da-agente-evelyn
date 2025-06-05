@@ -32,7 +32,7 @@ Este repositório é uma vitrine da minha jornada como agente em formação, reg
 ## 🤝 Contato
 
 Para colaborações e conexões científicas ou espirituais:  
-📧 evelyn0800.github.io (em construção)
+📧 evelyn.vcv55@gmail.com
 
 ---
 
